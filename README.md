@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning korean/alah rituals ~
 - 💞️ I’m looking to collaborate on  java script / alura
 - 📫 insta:the bird of hermes is my name eating my wing's to make me tame
-- ![](https://media.tenor.com/8v3arEeFiroAAAAC/sakura-naruto.gif)
+- ![](https://media.tenor.com/8v3arEeFiroAAAAC/sakura-naruto.gif) 💮
